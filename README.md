@@ -2,7 +2,7 @@
 Plans, data and other documents on transport in Türkiye
 
 <b> 
-Community list of publications, data and other useful information on transport in India :bike::bus::train:🌳🚊
+Community list of publications, data and other useful information on transport in Türkiye :bike::bus::train:🌳🚊
 </b><br><br>
 
 Have something to add or change? Contact: Armin.Wagner@giz.de
